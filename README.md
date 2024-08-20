@@ -5,5 +5,6 @@
 - 📫 How to reach me @junin1442 tik tok or cell phone or GitHub.
 - 😄 Pronouns: Ele.
 - ⚡ Fun fact: I'm fun.
-
+  
 Junindugrau13
+Contact me so we can study and talk.
